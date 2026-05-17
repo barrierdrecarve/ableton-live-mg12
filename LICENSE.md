@@ -1,4 +1,4 @@
-# 
+# Automatic Vegas Pro for PC addons is the best Vegas Pro for PC addons with pitch-shifting and video-stabilization. Safe, reliable, and optimized for maximum performance.
 
 
 
